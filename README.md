@@ -10,4 +10,7 @@ I am *hoping* to learn ways to optimise my work.
 
 ## Next steps: who knows? 
 
-This will be an adventure…for everyone. 
+This will be an adventure…for everyone. :smiling_imp:
+
+**When you read this, clap your hands**
+
